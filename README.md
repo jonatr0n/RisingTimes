@@ -27,3 +27,22 @@ https://www.amazon.com/Gunners-Vicarious-Adventures-Arizona-Trail/dp/0996654488/
 8.   Let me know what products you would like me to send to you and where to send them.  It will happen!  As to the music, the first of my CDs were done with a young engineer who did digital music.  The "I Love The Cowboys" was done with Jerry Matheny in the studio, as I mentioned on the phone.  We are about 3/4 of the way through the next CD.  He makes my songs turn into magic.
 
 I realize that most people stream music, so down the line if you are knowledgeable in all of that, we may go to streaming as well.  I have no idea how to put things on Spotify or CD baby.  My adopted son has his music there.  www.pennjohnson.net.   Well, he calls me his adopted grandmother but I'm not giving in to grandmother status!
+
+
+-------------------------------------------------------------------------------------------------------------------------------
+
+Very excited to hear you'll be taking over the sites. www.risingtimesbooks.com is a Wordpress site. The login is located at www.risingtimesbooks.com/wp-admin
+
+User: crazybarbi
+Password: Palusa27!
+
+Below is a link to my google drive which contains all the information I have on the Wordpress themes, photoshop images I've made, and existing files from the previous builds from myself and others. Let me know if you have any questions. 
+
+https://drive.google.com/file/d/1YHe5RfpaJmOTlBTyuY-_p3D1tTssTn4u/view?usp=sharing
+
+She has two GoDaddy hosting accounts:
+
+41194898
+7600183
+
+The password,  I THINK,  is Palusa27! OR MissLucy2 . 
